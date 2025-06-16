@@ -1,4 +1,4 @@
-Tabii! YouTube içerik yönetim ve analiz araçları için **README.md** dosyası oluşturuyorum. 📜✨  
+https://www.youtube.com/@CineVibes_122 Beğen - like - abone ol - subscription
 
 ---
 
